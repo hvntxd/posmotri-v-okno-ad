@@ -1,1 +1,0 @@
-https://github.com/madonnablades/posmotri-v-okno-ad
